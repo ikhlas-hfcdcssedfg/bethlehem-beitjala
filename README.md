@@ -1,0 +1,2 @@
+# bethlehem-beitjala
+bethlehem
